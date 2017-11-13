@@ -1,1 +1,1 @@
-# suchi.github.io
+# Suchiq.github.io
